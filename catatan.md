@@ -1,1 +1,1 @@
-Halo aku Ryu juga
+Halo aku Ryu juga, tapi Jujur
