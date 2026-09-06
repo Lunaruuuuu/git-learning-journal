@@ -1,5 +1,1 @@
-<<<<<<< HEAD
-Halo aku Ryu juga, tapi Jujur
-=======
-Halo aku Ryu juga, tapi boong
->>>>>>> main
+Halo aku Ryu juga, tapi jujur
