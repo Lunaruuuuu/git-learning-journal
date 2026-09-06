@@ -1,1 +1,1 @@
-Halo aku Ryu juga, tapi boong
+Halo aku Ryu juga
