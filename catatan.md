@@ -1,1 +1,0 @@
-Halo aku Ryu juga
